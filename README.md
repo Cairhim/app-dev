@@ -30,5 +30,6 @@
 > 4. Hercules
 > - A former human and Greek god of strength and heroism who fights and loses the fourth match by the gods' side, armed with a divine club.
 > ---
-> Watch it [here!](https://www.netflix.com/ph-en/title/81281579)
->
+> *Before eradicating humankind from the world, the gods give them one last chance to prove themselves worthy of survival. Let the Ragnarok battles begin!*
+>  *Watch it [here!](https://www.netflix.com/ph-en/title/81281579)*
+> ---
